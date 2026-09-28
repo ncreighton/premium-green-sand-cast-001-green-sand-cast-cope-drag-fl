@@ -1,0 +1,2 @@
+# premium-green-sand-cast-001-green-sand-cast-cope-drag-fl
+Tired of digging through scattered notes, lost pattern dimensions, and forgotten sand mixtures? The Green Sand Cast &amp; Cope Drag Flask Hub is your single source of truth for every mold you make.  This Notion template eliminates the chaos of green sand casting by centralizing all your patterns, flasks, sand recipes, and casting logs into one organize
